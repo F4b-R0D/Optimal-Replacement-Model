@@ -54,5 +54,3 @@ My current research extends these interests toward the economics of infrastructu
 
 **Fabrizzio Rodriguez**  
 MA Economics, University of Manitoba
-
-[LinkedIn](https://www.linkedin.com/in/frodrigueza/)
